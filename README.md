@@ -6,5 +6,5 @@
 - 📫 How to reach me -> faceitalone@abv.bg
 - 💀 Achievements: successully beaten nicotine, caffeine and alcohol addictions, months clean, 10,000+ hours wasted on first person shooters
 - ☠️ Hobbies: Listening to all types of music, mostly insane ones, gym, and of course more video games
-- 
+
 
